@@ -1,3 +1,6 @@
+![для гита](https://github.com/user-attachments/assets/da03c5f4-e98f-438a-9175-06089b2cfb18)
+![for git](https://github.com/user-attachments/assets/af93d62a-38f6-4461-b3a2-8102f31cc3c5)
+![Для гита3](https://github.com/user-attachments/assets/660bada0-c737-4e59-a577-5e3c854b44c8)
 
 # How to install guide
 
